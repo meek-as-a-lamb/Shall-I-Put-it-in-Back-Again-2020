@@ -61,6 +61,12 @@ Wood Panels, Speakers, Voltage Supply, Media Player, Two Synthesisers
 
 
 
+# Related Articles
+- http://www.idomin.com/news/articleView.html?idxno=745135
+- http://www.knn.co.kr/218238
+
+
+
 
 
 
